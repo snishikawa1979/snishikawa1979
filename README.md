@@ -1,4 +1,4 @@
-# Hi, I'm Shinsuke Nishikawa 👋
+# Hi, I'm Shinsuke Nishikawa
 
 ## Certifications
 
